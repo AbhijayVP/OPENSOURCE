@@ -1,3 +1,1 @@
-# OPENSOURCE
 Leave Life Loud!
-
